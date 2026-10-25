@@ -1,2 +1,0 @@
-# Galaxy24
-DP
